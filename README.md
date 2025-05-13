@@ -1,1 +1,1 @@
-# CaptionIQ-OTO-Updated-Full-Bundle-3M-Bonuses-Demo-Live
+# CaptionIQ OTO Updated Full Bundle +3M Bonuses + Demo Live
